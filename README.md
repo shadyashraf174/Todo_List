@@ -1,0 +1,2 @@
+![Screenshot 2024-04-28 034057](https://github.com/shadyashraf174/Todo_List/assets/97650533/5f7e7e8f-6f49-4a31-82cf-3dd35dec53d7)![Screenshot 2024-04-28 034117](https://github.com/shadyashraf174/Todo_List/assets/97650533/ead01913-174a-4059-98db-0733eade0551)
+![Screenshot 2024-04-28 034128](https://github.com/shadyashraf174/Todo_List/assets/97650533/28957051-36dc-47f2-9b10-6161932b7fb5)![Screenshot 2024-04-28 034140](https://github.com/shadyashraf174/Todo_List/assets/97650533/a31c62a9-e219-464e-9b12-01611a4447b4)
